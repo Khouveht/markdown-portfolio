@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[Hit me up on](khouvehtohpz@gmail.com, www.gitbub.com/khouveht)
