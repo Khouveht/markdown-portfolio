@@ -1,1 +1,1 @@
-![tropical canoe cruise, turqouise seas] https://images.app.goo.gl/pJGMcziz5zXpeybT7
+![image of tropical canoe cruise on turqouise seas] https://images.app.goo.gl/pJGMcziz5zXpeybT7
